@@ -4,7 +4,7 @@ Fashion, travel, beauty & wellness — your daily dose of global trends.
 [Website](https://mystylescene.com/) 
 
 About  
-Founded by Saad, My Style Scene focuses on content strategy, SEO, and storytelling across fashion, travel, beauty, and wellness.  
+Hi, My Style Scene focuses on content strategy, SEO, and storytelling across fashion, travel, beauty, and wellness.  
 
 Stay connected  
 🌐 [Website](https://mystylescene.com/)
